@@ -1,6 +1,3 @@
-## help people help you, with
-# Word And Mouth
-
 ### How much it costs to work with Word And Mouth
 
 Flat rate. £600 a day.
