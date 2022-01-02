@@ -1,6 +1,6 @@
 ## whatever you want people to do
-## will be easier and quicker
-## with Word And Mouth
+## will be easier and quicker with
+# Word And Mouth
 
 ### How much it costs to work with Word And Mouth
 
