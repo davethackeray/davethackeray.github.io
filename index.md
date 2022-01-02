@@ -1,7 +1,7 @@
-### How much it costs to work with Word And Mouth
-
 Flat rate. £600 a day.
+
 No surprises or additional costs. You get 8 hours of our time for £600.
+
 Or if you insist on being Stateside, we charge $1,000 per day. Because, while we love you, international taxes suck in a big way.
 
 ### Why do I need Word And Mouth?
